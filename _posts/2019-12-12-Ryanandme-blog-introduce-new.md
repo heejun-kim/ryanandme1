@@ -40,11 +40,13 @@ I think when I buy Ryan product, I buy it based on effectiveness  of the product
 
 Ryan is an animal character created by Kakao Friends. Ryan newly joined Kakao Friends in 2016, which consisted of Neo, Frodo, Apeach, Jay-G, Con, Muzi and Tube. 
 
-photo
+![kakaofriends](/img/post/01/kakaofriends.jpg)
 
 As can be the name implies, **Ryan is a lion**. You want to know how it looks like a lion? Ryan was a male lion born **without mane** and the heir to the throne of DoongDoong Island. At one point, it was hard for that complex, but Ryan overcame it, and he gave up the throne for freedom and escaped DoongDoong Island. Ryan, who escaped DoongDoong Island, became **a short-tailed lion because if he has long tail, then it’s easy to catch.**
 
-photo
+![escaperyan](/img/post/01/escaperyan.jpg)
+
+![thinkingryan](/img/post/01/thinkingryan.jpg)
 
  It was Kakao Friends that Ryan first met after escaping from the Doong Doong Island, and it became **the spiritual leader of Kakao Friends** with a strong spirit that overcame the complex. The sweetness, leadership and indescribable cuteness that comes from its blunt expression are his charm, and based on these various charms, he quickly became **a popular star in Korea.**
 
