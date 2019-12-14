@@ -49,3 +49,4 @@ As can be the name implies, **Ryan is a lion**. You want to know how it looks li
  It was Kakao Friends that Ryan first met after escaping from the Doong Doong Island, and it became **the spiritual leader of Kakao Friends** with a strong spirit that overcame the complex. The sweetness, leadership and indescribable cuteness that comes from its blunt expression are his charm, and based on these various charms, he quickly became **a popular star in Korea.**
 
  Recently, ryan has been released in Japan, China, the U.S, Europe and etc. I hope more people in foreign countries find out the Ryan’s attractive through my blog. Please look forward to the first one.
+
