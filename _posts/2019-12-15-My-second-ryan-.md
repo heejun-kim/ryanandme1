@@ -65,7 +65,7 @@ Someone who's looking for a strong Ryan product to be with for a long time.
 
 
 
-The site below is where you can purchase a similar Mini Ryan doll
+The site below is where you can purchase a similar giant Ryan doll
 
 [See similar giant ryan doll click here](http://bit.ly/kakao_winter_ryan_sale)
 
